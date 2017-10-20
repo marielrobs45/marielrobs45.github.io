@@ -1,2 +1,2 @@
-# marielrobs45.github.iu
+# marielrobs45.github.io
 Personal website
